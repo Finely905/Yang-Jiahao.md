@@ -9,7 +9,7 @@
 하지만 아쉽게도 이번 연주의 프로그램에서는 파가니니의 곡을 들을 수 있는 기회는 없었고 대신 바이올리니스트 출신 로베르토 곤잘레스-몬하스가 지휘하는 잘츠부르크 모차르테움 오케스트라의 연주를 들을 수 있었다.
 잘츠부르크 모차르테움 오케스트라는 모차르트의 미망인 콘스탄체와 두 아들의 후원으로 1841년에 설립된 '돔무지크페라인과 모차르테움 Dommushyrarein und Mocateum'을 뿌리로 하는 오케스트라로, 잘츠부르크 주와 시를 대표하는 단체로 현재 약 90명의 연주자로 구성되어 있으며, 독보적인 음악 문화를 바탕으로 오스트리아를 대표하는 최상급 오케스트라로 자리매김했다. 
 
-오스트리아의 오케스트라인 만큼 오스트리아를 대표하는 작곡가 모차르트의 작품 [W. A. Mozart: Thamos, König in Ägypten, K.345(336a)](https://www.youtube.com/watch?v=xS2k1Xv_u_4)로 공연의 첫 시작을 열었다.
+오스트리아의 오케스트라인 만큼 오스트리아를 대표하는 작곡가 [모차르트](yejin-cho-concert-review-assignment.md)의 작품 [W. A. Mozart: Thamos, König in Ägypten, K.345(336a)](https://www.youtube.com/watch?v=xS2k1Xv_u_4)로 공연의 첫 시작을 열었다.
 이 작품은 고대 이집트를 배경으로 한 정치, 권력, 정통성에 대한 이야기를 담고 있고 자주 접할 수 있는 작품은 아니라 좋은 기회로 감상할 수 있어서 좋았다.
 
 두 번째 곡은 [L.v. Beethoven: Violin Concerto in D Major, Op. 61](https://www.youtube.com/watch?v=vA4xg-4sDz4&t=230s)으로 양인모의 아름다운 음색과 함께 곡을 감상할 수 있었다.
